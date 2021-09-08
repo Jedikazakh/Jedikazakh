@@ -1,0 +1,7 @@
+- Hi, I’m @Jedikazakh
+- I’m interested in ... C#, SQL, Python, C++, JS, ML
+- I’m currently learning ... C#, SQL, JS
+- I’m looking to collaborate on ... =)
+- How to reach me ... just write me on Telegram @Jedihan or d.a.bezukhov@gmail.com
+- This is the way ...
+- And ... Good luck everyone )
